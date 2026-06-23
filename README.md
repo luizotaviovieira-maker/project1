@@ -14,7 +14,7 @@ sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de
 
 -A Fúria é Foda
 
--Explode Coração
+-Explode Coraçãoo
 
 -Meu Paraná, meu Tricolor
 
