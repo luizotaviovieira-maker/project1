@@ -1,21 +1,22 @@
 
-# Torcida Furia Independente
+# Lamine Yamal
 
-[Torcida Fúria Independente](https://www.youtube.com/watch?v=lsCuUQePUPI)
+[Humuliating Yamak]([https://www.youtube.com/watch?v=lsCuUQePUPI](https://www.youtube.com/shorts/04xyu9CmW8w))
 
-_A Fúria Independente, é uma das grandes torcidas do estado do Paraná, pertencendo ao Parana clube,
-sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de setembro. A agremiação nasceu da união de duas antigas torcidas: a Fúria Tricolor e a Independente Paranista_
+_Lamine Yamal, with his early talent and maturity on the pitch, already plays as if he had years of experience at the highest level of world football.
+_
 
-**Essa torcida está sendo ecenssial para a recostrução do clube, lotando estadio, calando a boca das organizadas rivais, assim fazendo o Paraná Clube voltar a elite do campeonato Nacional, tendo uma das maiores padronização nas arquibancadas, e tendo as musicas mais conhecida como:**
+**Lamine Yamal stands out as a generational talent, combining skill, vision, and confidence beyond his age every time he steps onto the field.
+:**
 
--Por Você Torci a Vida Inteira
+-Shirt 10
 
--Viemos do Inferno
+-The best PD
 
--A Fúria é Foda
+-The best player
 
--Explode Coraçãoo
+-Lamine Yamal
 
--Meu Paraná, meu Tricolor
+-dribller
 
-![TFI](https://media.tenor.com/_oxPrN2HZbsAAAAC/parana-parana-clube.gif)
+![LMY]([https://media.tenor.com/_oxPrN2HZbsAAAAC/parana-parana-clube.gif](https://media.tenor.com/YNokYpPd3LMAAAAd/lamine-yamal-dribble-lamine-yamal.gif))
