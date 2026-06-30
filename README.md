@@ -19,4 +19,4 @@ _
 
 -dribller
 
-[!gii](https://media1.tenor.com/m/rWjX3tTJyBgAAAAd/lamine-yamal-vs-nuno-mendes-lamine-yamal.gif)
+[lmy](https://media1.tenor.com/m/rWjX3tTJyBgAAAAd/lamine-yamal-vs-nuno-mendes-lamine-yamal.gif)
