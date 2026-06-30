@@ -19,4 +19,4 @@ _
 
 -dribller
 
-[![gii](https://media1.tenor.com/m/043oP2yQmt4AAAAd/raphinha-raphinha-yamal-celebration.gif)](https://media1.tenor.com/m/043oP2yQmt4AAAAd/raphinha-raphinha-yamal-celebration.gif)
+[![gii]((https://media1.tenor.com/m/043oP2yQmt4AAAAd/raphinha-raphinha-yamal-celebration.gif)
