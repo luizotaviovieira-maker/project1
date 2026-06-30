@@ -1,7 +1,7 @@
 
 # Lamine Yamal
 
-[Humuliating Yamak]([https://www.youtube.com/watch?v=lsCuUQePUPI](https://www.youtube.com/shorts/04xyu9CmW8w))
+[Humuliating Yamal]([https://www.youtube.com/watch?v=lsCuUQePUPI](https://www.youtube.com/shorts/04xyu9CmW8w))
 
 _Lamine Yamal, with his early talent and maturity on the pitch, already plays as if he had years of experience at the highest level of world football.
 _
@@ -19,4 +19,4 @@ _
 
 -dribller
 
-![lmy](https://media1.tenor.com/m/043oP2yQmt4AAAAd/raphinha-raphinha-yamal-celebration.gif)
+![ghi](https://media1.tenor.com/m/043oP2yQmt4AAAAd/raphinha-raphinha-yamal-celebration.gif)
