@@ -19,4 +19,4 @@ _
 
 -dribller
 
-![LMY]([(https://media.tenor.com/YNokYpPd3LMAAAAd/lamine-yamal-dribble-lamine-yamal.gif](https://media1.tenor.com/m/RVeCfht0iNoAAAAd/lamine-yamal-dance.gif))
+![LMY](https://media1.tenor.com/m/RVeCfht0iNoAAAAd/lamine-yamal-dance.gif)
